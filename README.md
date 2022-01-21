@@ -1,4 +1,4 @@
-🌶️Óla, sou Otto Raymond. Seja muito bem-vindo amigo Dev. Vamos codar juntos?🍖
+🌶️Óla, sou Kouamenan Otto Raymond. Seja muito bem-vindo amigo Dev. Vamos codar juntos?🍖
 
 <div align="center">
   <a href="https://github.com/Kouamenan">
